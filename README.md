@@ -3,6 +3,6 @@
 - 🌱 I’m currently learning Web Development
 - 👀 I’m interested in learning new tech
 - 🤝 I’m looking to make new friends 
-- 📫 How to reach me ...
+- 📫 To reach me you can DM me on instagram
 - 😄 Pronouns: Nikhil, Hawk
 - ⚡ Fun fact: I am a begginer
