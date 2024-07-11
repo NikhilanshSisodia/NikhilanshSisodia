@@ -4,5 +4,5 @@
 - 👀 I’m interested in learning new tech
 - 🤝 I’m looking to make new friends 
 - 📫 To reach me you can DM me on instagram
-- 😄 Pronouns: Nikhil, Hawk
+- 😄 Nickname: Nikhil, Hawk
 - ⚡ Fun fact: I am a begginer
